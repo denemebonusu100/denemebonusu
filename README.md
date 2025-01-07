@@ -1,5 +1,5 @@
 
-# <a href="https://mbmt.info/r7oodm">✅  DENEME BONUSU VEREN SİTELER </a>
+# <a href="https://mbmt.info/r7oodm">✅ 500TL NAKİT DENEME BONUSU VEREN SİTELER </a>
 # <a href="https://mbmt.info/r7oodm">✅ TIKLA GİRİŞ YAP </a>
 
 <meta charset="UTF-8">
