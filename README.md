@@ -11,7 +11,7 @@
 
 
   
-![300x100](https://github.com/user-attachments/assets/67e9dffd-b151-494c-9262-98e2d725d969) <div class="container">
+![300x100](https://github.com/user-attachments/assets/67e9dffd-b151-494c-9262-98e2d725d969)
 ![bonanza](https://github.com/user-attachments/assets/d3eabaa2-e123-4900-97d7-7fb9349df91d)
 ![fikstur](https://github.com/user-attachments/assets/966abd75-f178-4e43-b2eb-1350ebcc0503)
 ![favori](https://github.com/user-attachments/assets/41a3838a-2d1c-4b48-9b70-7db6142a3db1)
@@ -93,5 +93,4 @@
 ![genzobet](https://github.com/user-attachments/assets/d1e4ce2d-f58e-4e7d-a59c-dd8a4bebb3c0)
 ![galabet](https://github.com/user-attachments/assets/7646a49b-2f46-4013-b302-ceffda0900fb)
 ![fixb](https://github.com/user-attachments/assets/9d4c8a94-d200-478a-b94a-4620719b42e2)
-![zlotcom](https://github.com/user-attachments/assets/beeb83a0-9b24-4017-bbfc-eb824bf9a077)
 
